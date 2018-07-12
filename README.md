@@ -16,3 +16,9 @@
 
 ##### App Demo
 [Click Here](https://www.youtube.com/watch?v=z_3PiGbQCC0)
+
+##### Presentation
+[Click Here](https://youtu.be/nHqyM-4Vqf8?t=1h5m27s)
+
+##### Test out the App
+> *Coming Soon* Tentative Date August 27th
